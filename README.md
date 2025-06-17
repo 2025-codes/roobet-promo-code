@@ -42,7 +42,7 @@ Here’s how we set up our account:
 It’s a simple 30-second process, and you don’t need to verify anything immediately unless you plan to withdraw.
 
 ## How to Get a Bonus at Roobet Casino?
-Roobet bonuses come in several forms. When signing up, the fastest way to unlock a bonus is by entering the VIPMAX promo code. This opens up RooWards, which gives you access to daily, weekly, and instant cashback. Additionally, there are:
+Roobet bonuses come in several forms. When signing up, the fastest way to unlock a bonus is by entering the [VIPMAX promo code](https://x.com/roobetcodevip). This opens up RooWards, which gives you access to daily, weekly, and instant cashback. Additionally, there are:
 + Weekly Missions with rewards like free spins
 + Seasonal promotions
 + Sportsbook bonuses with parlay contests and cashback on losses
