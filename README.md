@@ -23,7 +23,7 @@ We followed this exact process and could unlock RooWards immediately after signi
 ## The Roobet Referral Code is VIPMAX
 This code gives you access to one of the most generous cashback systems in crypto gambling. Whether playing slots, live casino games, Crash, or placing sportsbook bets, VIPMAX ensures that up to 20% of your wagered losses return to you daily, with a $200 daily cap. The best part? There are no wagering requirements—what you get back is yours to use, withdraw, or re-bet.
 
-## Latest Roobet Referral Codes for 2025
+## Latest Roobet Promo Codes for 2025
 + VIPMAX – Unlock Instant RooWards Access
 + VIPMAX – 20% Cashback for 7 Days (up to $200 Daily)
 + VIPMAX – Last verified: ✅ June 2025
