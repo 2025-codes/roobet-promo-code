@@ -8,7 +8,7 @@
  | Roobet  | VIPMAX  | 20% Cashback for 7 Days ($200 Daily) |
 
 ## Get Up to $200 Daily Using the Roobet Promo Code
-Let’s break it down with an example. Suppose you deposit $500 and start wagering on games like Crash, Dice, or Sweet Bonanza. With the promo code VIPMAX, you’ll unlock instant RooWards access and earn 20% cashback on your losses for up to 7 days. So if you lose $100 one day, you could get $20 back — no strings attached, and no wagering requirements. We tried this ourselves, and by the end of the first week, we had recouped nearly $140 in rakeback across our sessions — all credited instantly.
+Let’s break it down with an example. Suppose you deposit $500 and start wagering on games like Crash, Dice, or Sweet Bonanza. With the promo code VIPMAX, you’ll unlock instant RooWards access and earn 20% cashback on your losses for up to 7 days. So if you lose $100 one day, you could get $20 back — no strings attached, and no wagering requirements. We tried this ourselves, and by the end of the first week, we had recouped nearly $140 in rakeback across our sessions — all credited instantly. Check out more [CSGO gambling sites at reddit.com](https://www.reddit.com/r/csgogamblingguide/comments/1hsjagx/best_csgo_gambling_sites_2025/)
 
 ## How to Use Roobet Referral Code?
 Here’s how to activate your bonus in under two minutes:
